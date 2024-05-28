@@ -1,5 +1,5 @@
 ## Learn and do
-leetcode
+https://leetcode.com/
 
 ## Visualize
 https://visualgo.net/en
