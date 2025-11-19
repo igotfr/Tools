@@ -8,6 +8,8 @@ https://www.livrosabertos.abcd.usp.br/portaldelivrosUSP/catalog
 
 https://www.msn.com/pt-br/noticias/ciencia-e-tecnologia/conhe%C3%A7a-10-plataformas-que-oferecem-acesso-a-livros-gratuitos-no-brasil/ar-AA1BeDsq
 
+https://catracalivre.com.br/educacao/conheca-10-plataformas-que-oferecem-acesso-a-livros-gratuitos-no-brasil/
+
 https://www.culturaacademica.com.br/
 
 https://www.dominiopublico.gov.br/pesquisa/PesquisaObraForm.jsp
